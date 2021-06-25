@@ -1,0 +1,4 @@
+- 👋 Hi, I’m QLN
+- 👀 I’m interested in floppa?
+- 🌱 I’m currently learning floopa
+- 📫 How to reach me QLNNNNNNN#6666
