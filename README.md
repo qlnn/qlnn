@@ -4,3 +4,4 @@
 
 - 👋 Hi, I’m mellstroy
 - 📫 How to reach me qlnus
+- 💻 Java Developer
